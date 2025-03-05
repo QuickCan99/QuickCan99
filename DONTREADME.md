@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @QuickCan99
-- 👀 I’m interested in FNF,Minecraft,IDK
-- 🌱 I’m currently learning C++
+- 👀 I’m interested in FNF,Minecraft,Roblox and Coding!
+- 🌱 I’m currently learning Javascript
 - 📫 How to reach me email: quickcan68@gmail.com or myabnerisonfirrree@outlook.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: im autistic!
